@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with elite nft sniper bot | floor-price-tracking + slippage-control, the #1 nft sniper bot. Includes floor-price-tracking and slippage-control for a
 
 
 
